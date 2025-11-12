@@ -1,2 +1,4 @@
 # Schule_dualworking
-Anton stinkt
+anton ist geil
+
+sheiß bulle
